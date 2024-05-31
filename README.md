@@ -1,16 +1,23 @@
-## Hi there 👋
 
-<!--
-**Arona0204/Arona0204** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+責任を負う人の話については、あなたと議論したことがありますよね。当時の私にはわかりませんでしたが…今は理解できました。
 
-Here are some ideas to get you started:
+<picture>
+    <img src="https://static.bluearchive.cc/Picture/BG_CS_PV4_075.jpg">
+</picture>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+### :大人としての責任と義務。
+
+そして、その延長線上にある、あなたの選択、そしてそれが表す考え方。
+---
+
+### :だから、先生
+
+もしあなたが私の信頼できる大人であれば、この歪んだ変形の終点とは、異なる結果……そこにつながっている……あなたはきっと見つけることができます。
+
+---
+
+### :だから先生、どうか……この絆――私たちとの思い出……歩んできた日々……ぜひ……心に刻んでください。
+
+大切なものは、決して消えない。大丈夫だから、帰りましょう、先生。私たちのすべての「奇跡」の場所に戻る
